@@ -12,4 +12,4 @@ Mi propósito de colaboración para la comunidad de github es compartir mis proy
 
 Si quieres contactarme puedes hacerlo por mi correo cristian-baudino@outlook.com o cristianbaudino@gmail.com
 
-Gracias por leer y hasta pronto!
+Gracias por leer sobre mi y hasta pronto!
